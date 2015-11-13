@@ -24,8 +24,8 @@ Preheat oven to 350 degrees F.  Prepare your enchilada sauce, if making homemade
 3. Once the chicken is cooked through.  Remove from heat and set aside
 4. To assemble the enchiladas, set up an assembly line including: tortillas, enchilada sauce, beans, chicken mixture, and cheese ![image](http://www.culicurious.com/wp-content/uploads/2013/04/Guacamole-Enchiladas-Recipe-Ingredients.jpg)
 5. Lay out a tortilla, and spread two tablespoons of sauce over the surface of the tortilla
-6. Add beans in a line down the middle of the tortilla, then add in a spoonful of the chicken mixture, then sprinkle with 1/3 cup cheese. Roll up tortilla and place in a greased 9 x 13-inch baking dish ![image](http://www.gimmesomeoven.com/best-chicken-enchiladas-ever/)
-7. Repeat with the remaining ingredients.  Then spread the remaining enchilada sauce on top of the tortillas, and sprinkle on the remaining shredded cheese ![image](http://www.gimmesomeoven.com/wp-content/uploads/2014/10/Chicken-Enchiladas-2.jpg =400x)
+6. Add beans in a line down the middle of the tortilla, then add in a spoonful of the chicken mixture, then sprinkle with 1/3 cup cheese. Roll up tortilla and place in a greased 9 x 13-inch baking dish ![image](http://www.gimmesomeoven.com/wp-content/uploads/2014/10/Chicken-Enchiladas-Animated-GIF.gif)
+7. Repeat with the remaining ingredients. Then spread the remaining enchilada sauce on top of the tortillas, and sprinkle on the remaining shredded cheese ![image](http://www.gimmesomeoven.com/wp-content/uploads/2014/10/Chicken-Enchiladas-2.jpg =400x)
 8. Now your all done, tuck in and enjoy!
 ![image](http://www.gimmesomeoven.com/wp-content/uploads/2014/04/Chicken-Enchilada-Casserole-1.jpg =400x)
 
