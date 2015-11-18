@@ -1,10 +1,18 @@
-#Chicken Enchiladas 🍗
+# Chicken Enchiladas 🍗
 
-![image](http://www.gimmesomeoven.com/wp-content/uploads/2014/10/Chicken-Enchiladas-61.jpg =500x)
+![image](http://www.gimmesomeoven.com/wp-content/uploads/2014/10/Chicken-Enchiladas-61.jpg)
+
 ######Serves 4
 ######PREP: 15 MINS COOK: 45 MINS TOTAL: 1 HOUR
 
-##Ingredients
+## Nutritional Info
+
+| Energy | Carbohydrates | Salt |
+| -------| -------- | ------- |
+| 180kj/45kcal | 14g  |  40g |
+
+
+## Ingredients
 
 - 2 Tablespoons of vegetable oil 
 - 1 small white onion, peeled and diced
@@ -15,7 +23,8 @@
 - 8 large flour tortillas
 - 3 cups Mexican-blend shredded cheese
 - 1 batch red enchilada sauce, or 1 can store-bought enchilada sauce	
-##Directions
+
+## Directions
 
 Preheat oven to 350 degrees F.  Prepare your enchilada sauce, if making homemade
 
@@ -25,15 +34,11 @@ Preheat oven to 350 degrees F.  Prepare your enchilada sauce, if making homemade
 4. To assemble the enchiladas, set up an assembly line including: tortillas, enchilada sauce, beans, chicken mixture, and cheese ![image](http://www.culicurious.com/wp-content/uploads/2013/04/Guacamole-Enchiladas-Recipe-Ingredients.jpg)
 5. Lay out a tortilla, and spread two tablespoons of sauce over the surface of the tortilla
 6. Add beans in a line down the middle of the tortilla, then add in a spoonful of the chicken mixture, then sprinkle with 1/3 cup cheese. Roll up tortilla and place in a greased 9 x 13-inch baking dish ![image](http://www.gimmesomeoven.com/wp-content/uploads/2014/10/Chicken-Enchiladas-Animated-GIF.gif)
-7. Repeat with the remaining ingredients. Then spread the remaining enchilada sauce on top of the tortillas, and sprinkle on the remaining shredded cheese ![image](http://www.gimmesomeoven.com/wp-content/uploads/2014/10/Chicken-Enchiladas-2.jpg =400x)
-8. Now your all done, tuck in and enjoy!
-![image](http://www.gimmesomeoven.com/wp-content/uploads/2014/04/Chicken-Enchilada-Casserole-1.jpg =400x)
+7. Repeat with the remaining ingredients. Then spread the remaining enchilada sauce on top of the tortillas, and sprinkle on the remaining shredded cheese ![image](http://www.gimmesomeoven.com/wp-content/uploads/2014/10/Chicken-Enchiladas-2.jpg)
+8. The dish is now ready for the oven at 350 degrees F (Remember to use gloves when checking)
+9. Now your all done, tuck in and enjoy!
+![image](http://www.gimmesomeoven.com/wp-content/uploads/2014/04/Chicken-Enchilada-Casserole-1.jpg)
 
-##Nutritional Info
-
-| Energy | Carbohydrates | Salt |
-| -------| -------- | ------- |
-| 180kj/45kcal | 14g  |  40g |
 
 
 
